@@ -1,4 +1,5 @@
 ![images](https://github.com/user-attachments/assets/2e3344fa-6a5b-41a7-8ad1-febf79f059ad)
+
 •You call me Bri but any nickname is fine for me! 
 
 •I am very friendly to people! But PLEASE don't make me
