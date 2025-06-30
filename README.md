@@ -1,4 +1,4 @@
-![images](https://github.com/user-attachments/assets/2e3344fa-6a5b-41a7-8ad1-febf79f059ad)
+![download (4) (1)](https://github.com/user-attachments/assets/b1f4b051-6b0a-4f57-b7b2-4364d120bf7b)
 
 •You call me Bri but any nickname is fine for me! 
 
