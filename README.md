@@ -18,4 +18,4 @@
 
 # 𝙽𝚞𝚖𝚋𝚎𝚛 𝟷 𝚔𝚒𝚗𝚗𝚒𝚎 𝚘𝚏 𝙵𝚞𝚛𝚒𝚗𝚊! 𝙸'𝚖 𝚜𝚞𝚙𝚎𝚛 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚈𝙴𝙰𝙷
 
-https://gifs.crd.co/assets/images/gallery22/ba6bb29e_original.gif?v=ef433a6f
+![ba6bb29e](https://github.com/user-attachments/assets/d2e11d8a-72f3-4a1b-9711-44de23d824b1)
