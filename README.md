@@ -1,3 +1,3 @@
 ![4e528026-1237-4d12-9dc7-ff291a0d1c23](https://github.com/user-attachments/assets/263ba65d-f02f-4480-bcb4-cf6cb6c2c426)
  <code style="color : pink ">What are the colors of the forgotten memories... 
-</code> 
+</FFD1DC>
