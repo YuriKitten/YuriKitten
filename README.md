@@ -1,3 +1,3 @@
-![4e528026-1237-4d12-9dc7-ff291a0d1c23](https://github.com/user-attachments/assets/263ba65d-f02f-4480-bcb4-cf6cb6c2c426)
+![Taylor Swift (1)](https://github.com/user-attachments/assets/b1639641-281e-4442-b18d-713ed943a6fb)
 <code style="color : pink ">What are the colors of the forgotten memories... 
 </FFD1DC>
