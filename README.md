@@ -6,5 +6,7 @@ my poor aesthetic being such a comfy pink core!
 - My name is **Bri** well... I allow you to call me **Jazz*
 - I don't int very much, I try to.
 - I'm trying to avoid some ppl, if you're friends with them, I'll have to avoid you for a while. I'm sorry!!
+- Heavy obsession with Music and guitars!
+- Band lover!
 
 
