@@ -5,7 +5,7 @@
 <p align="center">Hey did you know that im actually hiding</p>
 <p align="center">
   <a href="https://github.com/J1GU">till</a> ✫
-  <a href="https://github.com/GUlTARIST">mizi</a> ✫
+  <a href="https://github.com/LovesickObsession">mizi</a> ✫
   <a href="https://github.com/waffletarte">sua</a> ✫
   <a href="https://github.com/YourrRemedy">ivan</a>
 </p>
