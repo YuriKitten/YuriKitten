@@ -7,5 +7,5 @@
   <a href="https://github.com/J1GU">till</a> ✫
   <a href="https://github.com/GUlTARIST">mizi</a> ✫
   <a href="https://github.com/waffletarte">sua</a> ✫
-  <a href="https://github.com/LovesickObsession">ivan</a>
+  <a href="https://github.com/YourrRemedy">ivan</a>
 </p>
