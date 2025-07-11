@@ -5,7 +5,7 @@
 
 <p align='center">
 
- The idiot and their friends. 
+ Hey what do I put here this isn't working I tried though:/
 <p/>  
 <p align='center"=>
   <a href="https://github.com/J1GU">Till</a> •
