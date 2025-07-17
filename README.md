@@ -2,7 +2,7 @@
   <img src="https://github.com/user-attachments/assets/249fc41a-7f56-4e7d-b1ef-f4fee383e581">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
-<p align="center">𝓗𝓮𝓵𝓵𝓸!!𝔂𝓸𝓾 𝓯𝓸𝓾𝓷𝓭 𝓶𝓮! 𝓜𝔂 𝓷𝓪𝓶𝓮 𝓲𝓼 𝓑𝓻𝓲 𝓫𝓾𝓽 𝓪𝓷𝔂 𝓷𝓲𝓬𝓴𝓷𝓪𝓶𝓮 𝓲𝓼 𝓯𝓲𝓷𝓮, 𝓘 𝓵𝓲𝓴𝓮 𝓽𝓸 𝓱𝓪𝓷𝓰 𝓸𝓾𝓽 𝓲𝓷 𝓽𝓱𝓮 𝓖𝓮𝓷𝓼𝓱𝓲𝓷/𝓓𝓪𝓷𝓰𝓪𝓷𝓻𝓸𝓷𝓹𝓪 𝓼𝓹𝓸𝓽 𝓸𝓻 𝔀𝓲𝓽𝓱 𝓶𝔂 𝓯𝓻𝓲𝓮𝓷𝓭𝓼</p>
+<p align="center">𝓗𝓮𝓵𝓵𝓸!!𝔂𝓸𝓾 𝓯𝓸𝓾𝓷𝓭 𝓶𝓮! 𝓜𝔂 𝓷𝓪𝓶𝓮 𝓲𝓼 𝓑𝓻𝓲 𝓫𝓾𝓽 𝓪𝓷𝔂 𝓷𝓲𝓬𝓴𝓷𝓪𝓶𝓮 𝓲𝓼 𝓯𝓲𝓷𝓮, 𝓘 𝓵𝓲𝓴𝓮 𝓽𝓸 𝓱𝓪𝓷𝓰 𝓸𝓾𝓽 𝓲𝓷 𝓽𝓱𝓮 𝓖𝓮𝓷𝓼𝓱𝓲𝓷 𝓸𝓻 𝓽𝓱𝓮 𝓓𝓪𝓷𝓰𝓪𝓷𝓻𝓸𝓷𝓹𝓪 𝓼𝓹𝓸𝓽 𝔀𝓲𝓽𝓱 𝓶𝔂 𝓯𝓻𝓲𝓮𝓷𝓭𝓼</p>
 <p align="center">
   <a href="https://github.com/J1GU">𝓡𝓪𝓮</a> ・
   <a href="https://github.com/YourrRemedy">𝓥𝓪𝓷𝓲</a> ・
