@@ -1,15 +1,11 @@
-<p align='center">
-![0c53ccb2-d81e-4a1e-806d-21fe8eb95c9e](https://github.com/user-attachments/assets/249fc41a-7f56-4e7d-b1ef-f4fee383e581)
-<p/>
-<p align='center"=>«──────⊹⊱✫⊰⊹──────<p/>
-
-<p align='center">
-
- Hey what do I put here this isn't working I tried though:/
-<p/>  
-<p align='center"=>
-  <a href="https://github.com/J1GU">Till</a> •
-  <a href="https://github.com/GUlTARIST">Mizi</a> •
-  <a href="𝚑𝚝𝚝𝚙𝚜://𝚐𝚒𝚝𝚑𝚞𝚋.𝚌𝚘𝚖/𝚠𝚊𝚏𝚏𝚕𝚎𝚝𝚊𝚛𝚝𝚎">Sua</a> •
-  <a href="https://github.com/LovesickObsession">Ivan</a> •
-<p/>
+<<p align="center">
+  <img src="https://github.com/user-attachments/assets/249fc41a-7f56-4e7d-b1ef-f4fee383e581">
+</p>
+<p align="center">«──────⊹⊱✫⊰⊹──────</p>
+<p align="center">𝓗𝓮𝓵𝓵𝓸!!𝔂𝓸𝓾 𝓯𝓸𝓾𝓷𝓭 𝓶𝓮! 𝓜𝔂 𝓷𝓪𝓶𝓮 𝓲𝓼 𝓑𝓻𝓲 𝓫𝓾𝓽 𝓪𝓷𝔂 𝓷𝓲𝓬𝓴𝓷𝓪𝓶𝓮 𝓲𝓼 𝓯𝓲𝓷𝓮, 𝓘 𝓵𝓲𝓴𝓮 𝓽𝓸 𝓱𝓪𝓷𝓰 𝓸𝓾𝓽 𝓲𝓷 𝓽𝓱𝓮 𝓖𝓮𝓷𝓼𝓱𝓲𝓷/𝓓𝓪𝓷𝓰𝓪𝓷𝓻𝓸𝓷𝓹𝓪 𝓼𝓹𝓸𝓽 𝓸𝓻 𝔀𝓲𝓽𝓱 𝓶𝔂 𝓯𝓻𝓲𝓮𝓷𝓭𝓼</p>
+<p align="center">
+  <a href="https://github.com/J1GU">𝓡𝓪𝓮</a> ・
+  <a href="https://github.com/YourrRemedy">𝓥𝓪𝓷𝓲</a> ・
+  <a href="https://github.com/waffletarte">𝓦𝓪𝓯</a> ・
+  <a href="https://github.com/LovesickObsession">𝓛𝓸𝓿𝓻𝓼𝓲𝓬𝓴-𝓒𝓱𝓪𝓷</a>
+</p>
