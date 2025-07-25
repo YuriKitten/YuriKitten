@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/abff910e-e89a-4313-91d4-1c1b338278f2">
+  <img src="https://github.com/user-attachments/assets/23924d7d-426f-4545-b5c9-bc1a32944c4c">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
 <p align="center">𝗬𝘂𝗻𝗼 𝘅 𝗗𝗮𝗿𝗹𝗶𝗻𝗴 𝗱𝗮𝗻𝗰𝗲 𝗺𝘂𝘀𝘁 𝗯𝗲 𝘃𝗿𝘆 𝗰𝘂𝘁𝗲! >//<</p>
