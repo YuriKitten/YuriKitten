@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/44293f88-c4c5-4641-a2f4-1d63e010dbdc">
+  <img src="https://github.com/user-attachments/assets/8222b3df-9630-4b2b-a2ab-da179499c759">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
-<p align="center">𝗜 𝘄𝗶𝗹𝗹 𝗯𝘂𝘆 𝘁𝗵𝗲 𝗿𝗲𝗮𝗹 𝗺𝗲𝗿𝗰𝗵 𝘀𝗼𝗼𝗻...𝗽𝗿𝗼𝗺𝗶𝘀𝗲! >//<</p>
+<p align="center">𝗛𝗲 𝘄𝗵𝗲𝗻 𝘀𝗵𝗲 𝘀𝗮𝗶𝗱: </p>
 <p align="center">
   <a href="https://forevermortal.atabook.org/">αтα</a>
 </ρ
