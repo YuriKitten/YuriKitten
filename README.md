@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/8222b3df-9630-4b2b-a2ab-da179499c759">
+  <img src="https://github.com/user-attachments/assets/67dc4b09-d596-4adb-a1cc-8cb0356e9627">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
-<p align="center">𝗛𝗲 𝘄𝗵𝗲𝗻 𝘀𝗵𝗲 𝗴𝗮𝘃𝗲 𝗵𝗲𝗿 𝗮: </p>
+<p align="center">𝘿𝙤𝙣𝙩 𝙚𝙫𝙚𝙧 𝙗𝙚𝙡𝙞𝙚𝙫𝙚 𝙞𝙣 𝙏!</p>
 <p align="center">
   <a href="https://forevermortal.atabook.org/">αтα</a>
 </ρ
