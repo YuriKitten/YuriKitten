@@ -2,11 +2,8 @@
   <img src="https://github.com/user-attachments/assets/67dc4b09-d596-4adb-a1cc-8cb0356e9627">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
-<p align="center">𝘿𝙤𝙣𝙩 𝙚𝙫𝙚𝙧 𝙗𝙚𝙡𝙞𝙚𝙫𝙚 𝙞𝙣 𝙏!</p>
+<p align="center">𝘿𝙤𝙣'𝙩</p>
 <p align="center">
   <a href="https://forevermortal.atabook.org/">αтα</a>
 </ρ
-
-
-https://github.com/user-attachments/assets/d91fee09-c916-49f7-b44f-a8d730e0305b
 
