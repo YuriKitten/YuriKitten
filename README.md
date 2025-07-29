@@ -4,6 +4,6 @@
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
 <p align="center">𝘿𝙤𝙣'𝙩</p>
 <p align="center">
-  <a href="https://forevermortal.atabook.org/">αтα</a>
+  <a href="https://github.com/DARLlNGDANCE">Don't click this link</a>
 </ρ
 
