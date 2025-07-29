@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/67dc4b09-d596-4adb-a1cc-8cb0356e9627">
+  <img src="https://github.com/user-attachments/assets/fcdd9cca-4b6e-4873-a062-71c119ecf69d">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
 <p align="center">𝘿𝙤𝙣'𝙩</p>
