@@ -7,6 +7,6 @@
   <a href="https://github.com/DARLlNGDANCE">Don't click this link</a>
 </ρ
 
-<p align="center"> Meow
+<p align="center">Meow
    
 ![tumblr_8a345154bc21cb80ddbb718a61699fd6_e29746b0_640](https://github.com/user-attachments/assets/55f11c45-2ee0-479a-8f2c-c4d1f899355b)
