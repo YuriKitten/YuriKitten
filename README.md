@@ -1,6 +1,6 @@
 <div align="center">
 
-## $${\color{pink}"finally \space you \space called \space me \space by \space my \space first /space name }$$
+## $${\color{pink}"finally \space you \space called \space me \space by \space my \space first name"}$$
 
 <img src="https://github.com/user-attachments/assets/7bb671aa-b25f-48fa-8801-4189b79e2076" />
 </p>
