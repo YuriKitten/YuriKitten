@@ -1,6 +1,6 @@
 <div align="center">
 
-## $${\color{pink}"I'm \space so \space happy."}$$
+## $${\color{pink}Team \space Yuri}$$
 
 <img src="https://github.com/user-attachments/assets/b296ffce-6824-4755-8cb1-0a723a5d57a9" />
 </p>
