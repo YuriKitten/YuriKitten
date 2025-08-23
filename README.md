@@ -1,13 +1,13 @@
 <div align="center">
 
-## $${\color{pink}"finally \space you \space called \space me \space by \space my \space first name"}$$
+## $${\color{pink}"I'm \space so \space happy."}$$
 
-<img src="https://github.com/user-attachments/assets/7bb671aa-b25f-48fa-8801-4189b79e2076" />
-</p>
-Finally, you called me by first name. I'm so happy.
+<img src="https://github.com/user-attachments/assets/b296ffce-6824-4755-8cb1-0a723a5d57a9" />
 </p>
 
-*Forever eternal*
+</p>
+
+**The two lesbians**
 
 &nbsp;&nbsp;&nbsp; [Cure](https://github.com/cvremp3) &nbsp;&nbsp;&nbsp; [Lovesick](https://github.com/LovesickObsession) &nbsp;&nbsp;&nbsp; [Ata](https://forevermortal.atabook.org/)
 
