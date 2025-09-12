@@ -9,7 +9,7 @@
 
 **The two lesbians**
 
-&nbsp;&nbsp;&nbsp; [Cure](https://github.com/cvremp3) &nbsp;&nbsp;&nbsp; [Lovesick](https://github.com/LovesickObsession) &nbsp;&nbsp;&nbsp; [Ata](https://forevermortal.atabook.org/)
+&nbsp;&nbsp;&nbsp; [making links](https://github.com/cvremp3) &nbsp;&nbsp;&nbsp; [Lovesick](https://github.com/LovesickObsession) &nbsp;&nbsp;&nbsp; [Ata](https://forevermortal.atabook.org/)
 
 <img src="https://github.com/user-attachments/assets/4f422203-eb03-4b28-a0bb-bfc067da1387" />
 </p>
