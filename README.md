@@ -7,9 +7,7 @@
 
 </p>
 
-*みんな最高、ありがとう
-可-可-可-可愛い
-可-可-可-可愛い*
+**welcome to this wip account**
 
 &nbsp;&nbsp;&nbsp; [Ata](https://forevermortal.atabook.org/)
 
