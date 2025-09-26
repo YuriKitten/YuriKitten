@@ -2,7 +2,7 @@
 
 ## $${\color{pink}Yuri \space Kitten}$$
 
-<img src="https://github.com/user-attachments/assets/4f422203-eb03-4b28-a0bb-bfc067da1387" />
+<img src="https://github.com/user-attachments/assets/64dfe48f-f538-429d-9694-1aa67357d080" />
 </p>
 
 </p>
@@ -15,4 +15,3 @@
 </p>
 
  
-
