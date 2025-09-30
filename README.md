@@ -28,4 +28,11 @@
  I'm not a criminal to get more hate.
  I'm just a person, like you.
  I have problems too, but I didn't know what you felt
+
+  </p>
+  By the end of the day,Maybe soon. Or later on,
+  I'll quit and I'll just hang. Just there watching.
+
+   </p>
+   While i get pitifed for being a lunatic.
  
