@@ -35,4 +35,10 @@
 
    </p>
    While i get pitifed for being a lunatic.
- 
+   
+   
+ </p>
+Edit: I'm quitting pt now. I'll come back in (a couple of) a month or more. Might take me awhile im saying goodbye to my friends out there. I hope you'll still remember me, i wish.
+If not its okay, i understand...
+
+THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
