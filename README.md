@@ -20,3 +20,12 @@
  About the issue? You know about that. I did NOT harass you.
  maybe I did but i had no clue. You could've told me if you 
  didn't like me using that.
+
+ </p>
+ i Admit, it was my FAULT for doing it first,
+ i was stupid, ok? I didn't mean it.
+ Maybe if i was more aware, i wasn't put blame on
+ I'm not a criminal to get more hate.
+ I'm just a person, like you.
+ I have problems too, but I didn't know what you felt
+ 
