@@ -14,14 +14,13 @@
 <img src="https://github.com/user-attachments/assets/f25fadf8-9244-487c-8e45-8646cc9961c0" />
 </p>
 
- </p>
- $\color{#F089C9}{\textbf{Let me clear some things up.}}$
+ </p> $\color{#F089C9}{\textbf{Let me clear some things up.}}$
 
  $\color{#F089C9}{\textbf{About the issue? You know about that.}}$
  
  $\color{#F089C9}{\textbf{I did NOT harass you. maybe I did but i had no clue. You could've told me if you didn't like me using that.}}$
 
- $\color{#F089C9}{\textbf{i Admit, it was my FAULT for doing it first
+ $\color{#F089C9}{\textbf{i Admit, it was my FAULT for doing it first.}}$
 
  $\color{#F089C9}{\textbf{i was stupid, ok? I didn't mean it.}}$
 
