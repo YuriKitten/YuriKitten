@@ -41,6 +41,9 @@
 Edit: I'm quitting pt now. I'll come back in (a couple of) a month or more. Might take me awhile im saying goodbye to my friends out there. I hope you'll still remember me, i wish.
 If not its okay, i understand...
 
+ </p>
+ Making a lovemail soon, don't worry I'll list all!
+
 THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/yyoshidaa)
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/yurivampire)
