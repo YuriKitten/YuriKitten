@@ -30,7 +30,7 @@
  I have problems too, but I didn't know what you felt
 
   </p>
-  By the end of the day,Maybe soon. Or later on,
+  By the end of the day, Maybe soon. Or later on,
   I'll quit and I'll just hang. Just there watching.
 
    </p>
@@ -42,3 +42,7 @@ Edit: I'm quitting pt now. I'll come back in (a couple of) a month or more. Migh
 If not its okay, i understand...
 
 THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
+&nbsp;&nbsp;&nbsp; [<3](https://github.com/yyoshidaa)
+&nbsp;&nbsp;&nbsp; [<3](https://github.com/yurivampire)
+&nbsp;&nbsp;&nbsp; [<3](https://github.com/Casyuce)
+
