@@ -16,13 +16,14 @@
 
  </p>
  $\color{#F089C9}{\textbf{Let me clear some things up.}}$
+
  $\color{#F089C9}{\textbf{About the issue? You know about that. I did NOT harass you. maybe I did but i had no clue. You could've told me if you didn't like me using that.}}$
 
  $\color{#F089C9}{\textbf{i Admit, it was my FAULT for doing it first
 
  $\color{#F089C9}{\textbf{i was stupid, ok? I didn't mean it.}}$
 
- $\color{#cea3da}{\textbf{Maybe if i was more aware, i wasn't putto blame.}}$ 
+ $\color{#F089C9}{\textbf{Maybe if i was more aware, i wasn't putto blame.}}$ 
  
  $\color{#F089C9}{\textbf{I'm just a person, like you. I have problems too, but I didn't know what you felt}}$
  
