@@ -33,7 +33,9 @@ While i get pitifed for being a lunatic.}}$
 
   </p>
  Lovemail's are still wip. Working on it, though.
- THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
+ </p>
+THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
+
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/yyoshidaa)
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/yurivampire)
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/Casyuce)
