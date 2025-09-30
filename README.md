@@ -15,36 +15,23 @@
 </p>
 
  </p>
- Let me clear some things up.
- </p>
- About the issue? You know about that. I did NOT harass you.
- maybe I did but i had no clue. You could've told me if you 
- didn't like me using that.
+ $\color{#F089C9}{\textbf{Let me clear some things up.}}$
+ $\color{#F089C9}{\textbf{About the issue? You know about that. I did NOT harass you. maybe I did but i had no clue. You could've told me if you didn't like me using that.}}$
 
- </p>
- i Admit, it was my FAULT for doing it first,
- i was stupid, ok? I didn't mean it.
- Maybe if i was more aware, i wasn't put blame on
- I'm not a criminal to get more hate.
- I'm just a person, like you.
- I have problems too, but I didn't know what you felt
+ $\color{#F089C9}{\textbf{i Admit, it was my FAULT for doing it first
+
+ $\color{#F089C9}{\textbf{i was stupid, ok? I didn't mean it.}}$
+
+ $\color{#cea3da}{\textbf{Maybe if i was more aware, i wasn't putto blame.}}$ 
+ 
+ $\color{#F089C9}{\textbf{I'm just a person, like you. I have problems too, but I didn't know what you felt}}$
+ 
+ $\color{#F089C9}{\textbf{By the end of the day, Maybe soon. Or later on, I'll quit and I'll just hang. Just there watching.
+While i get pitifed for being a lunatic.}}$
 
   </p>
-  By the end of the day, Maybe soon. Or later on,
-  I'll quit and I'll just hang. Just there watching.
-
-   </p>
-   While i get pitifed for being a lunatic.
-   
-   
- </p>
-Edit: I'm quitting pt now. I'll come back in (a couple of) a month or more. Might take me awhile im saying goodbye to my friends out there. I hope you'll still remember me, i wish.
-If not its okay, i understand...
-
- </p>
- Making a lovemail soon, don't worry I'll list all!
-
-THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
+ Lovemail's are still wip. Working on it, though.
+ THANK YOU @Casyuce for supporting me while im not ok, i owe uou alot.
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/yyoshidaa)
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/yurivampire)
 &nbsp;&nbsp;&nbsp; [<3](https://github.com/Casyuce)
