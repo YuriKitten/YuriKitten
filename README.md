@@ -16,3 +16,7 @@
 
  </p>
  Let me clear some things up.
+ </p>
+ About the issue? You know about that. I did NOT harass you.
+ maybe I did but i had no clue. You could've told me if you 
+ didn't like me using that.
