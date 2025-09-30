@@ -14,4 +14,5 @@
 <img src="https://github.com/user-attachments/assets/f25fadf8-9244-487c-8e45-8646cc9961c0" />
 </p>
 
- 
+ </p>
+ Let me clear some things up.
