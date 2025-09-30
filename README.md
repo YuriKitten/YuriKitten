@@ -14,7 +14,7 @@
 <img src="https://github.com/user-attachments/assets/f25fadf8-9244-487c-8e45-8646cc9961c0" />
 </p>
 
- </p> $\color{#F089C9}{\textbf{Let me clear some things up.}}$
+ $\color{#F089C9}{\textbf{Let me clear some things up.}}$
 
  $\color{#F089C9}{\textbf{About the issue? You know about that.}}$
  
