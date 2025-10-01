@@ -14,24 +14,24 @@
 <img src="https://github.com/user-attachments/assets/f25fadf8-9244-487c-8e45-8646cc9961c0" />
 </p>
 
- $\color{#F089C9}{\textbf{Let me clear some things up.}}$
-
- $\color{#F089C9}{\textbf{About the issue? You know about that.}}$
+ $\color{#F089C9}{\textbf{𝑳𝒆𝒕 𝒎𝒆 𝒄𝒍𝒆𝒂𝒓 𝒔𝒐𝒎𝒆 𝒕𝒉𝒊𝒏𝒈𝒔 𝒖𝒑}}$
  
- $\color{#F089C9}{\textbf{I did NOT harass you. maybe I did but i had no clue.}}$
-
- $\color{#F089C9}{\textbf{You could've told me if you didn't like me using that.}}$
-
- $\color{#F089C9}{\textbf{i Admit, it was my FAULT for doing it first.}}$
-
- $\color{#F089C9}{\textbf{i was stupid, ok? I didn't mean it.}}$
-
- $\color{#F089C9}{\textbf{Maybe if i was more aware, i wasn't put to blame.}}$ 
+ $\color{#F089C9}{\textbf{𝑨𝒃𝒐𝒖𝒕 𝒕𝒉𝒆 𝒊𝒔𝒔𝒖𝒆? 𝒀𝒐𝒖 𝒌𝒏𝒐𝒘 𝒂𝒃𝒐𝒖𝒕 𝒕𝒉𝒂𝒕.}}$
  
- $\color{#F089C9}{\textbf{I'm just a person, like you. I have problems too, but I didn't know what you felt}}$
+ $\color{#F089C9}{\textbf{𝑰 𝒅𝒊𝒅 𝑵𝑶𝑻 𝒉𝒂𝒓𝒂𝒔𝒔 𝒚𝒐𝒖. 𝒎𝒂𝒚𝒃𝒆 𝑰 𝒅𝒊𝒅 𝒃𝒖𝒕 𝒊 𝒉𝒂𝒅 𝒏𝒐 𝒄𝒍𝒖𝒆.}}$
+
+ $\color{#F089C9}{\textbf{𝒀𝒐𝒖 𝒄𝒐𝒖𝒍𝒅'𝒗𝒆 𝒕𝒐𝒍𝒅 𝒎𝒆 𝒊𝒇 𝒚𝒐𝒖 𝒅𝒊𝒅𝒏'𝒕 𝒍𝒊𝒌𝒆 𝒎𝒆 𝒖𝒔𝒊𝒏𝒈 𝒕𝒉𝒂𝒕.}}$
+
+ $\color{#F089C9}{\textbf{𝑰 𝒂𝒅𝒎𝒊𝒕, 𝒊𝒕 𝒘𝒂𝒔 𝒎𝒚 𝑭𝑨𝑼𝑳𝑻 𝒇𝒐𝒓 𝒅𝒐𝒊𝒏𝒈 𝒊𝒕 𝒇𝒊𝒓𝒔𝒕.}}$
+
+ $\color{#F089C9}{\textbf{𝑰 𝒘𝒂𝒔 𝒔𝒕𝒖𝒑𝒊𝒅, 𝒐𝒌? 𝑰 𝒅𝒊𝒅𝒏'𝒕 𝒎𝒆𝒂𝒏 𝒊𝒕.}}$
+
+ $\color{#F089C9}{\textbf{𝑴𝒂𝒚𝒃𝒆 𝒊𝒇 𝒊 𝒘𝒂𝒔 𝒎𝒐𝒓𝒆 𝒂𝒘𝒂𝒓𝒆, 𝒊 𝒘𝒂𝒔𝒏'𝒕 𝒑𝒖𝒕 𝒕𝒐 𝒃𝒍𝒂𝒎𝒆.}}$ 
  
- $\color{#F089C9}{\textbf{By the end of the day, Maybe soon. Or later on, I'll quit and I'll just hang. Just there watching.
-While i get pitifed for being a lunatic.}}$
+ $\color{#F089C9}{\textbf{𝑰'𝒎 𝒋𝒖𝒔𝒕 𝒂 𝒑𝒆𝒓𝒔𝒐𝒏, 𝒍𝒊𝒌𝒆 𝒚𝒐𝒖. 𝑰 𝒉𝒂𝒗𝒆 𝒑𝒓𝒐𝒃𝒍𝒆𝒎𝒔 𝒕𝒐𝒐, 𝒃𝒖𝒕 𝑰 𝒅𝒊𝒅𝒏'𝒕 𝒌𝒏𝒐𝒘 𝒘𝒉𝒂𝒕 𝒚𝒐𝒖 𝒇𝒆𝒍𝒕}}$
+ 
+ $\color{#F089C9}{\textbf{𝑩𝒚 𝒕𝒉𝒆 𝒆𝒏𝒅 𝒐𝒇 𝒕𝒉𝒆 𝒅𝒂𝒚, 𝑴𝒂𝒚𝒃𝒆 𝒔𝒐𝒐𝒏. 𝑶𝒓 𝒍𝒂𝒕𝒆𝒓 𝒐𝒏, 𝑰'𝒍𝒍 𝒒𝒖𝒊𝒕 𝒂𝒏𝒅 𝑰'𝒍𝒍 𝒋𝒖𝒔𝒕 𝒉𝒂𝒏𝒈. 𝑱𝒖𝒔𝒕 𝒕𝒉𝒆𝒓𝒆,𝒘𝒂𝒕𝒄𝒉𝒊𝒏𝒈.
+𝑾𝒉𝒊𝒍𝒆 𝒊 𝒈𝒆𝒕 𝒑𝒊𝒕𝒊𝒇𝒆𝒅 𝒇𝒐𝒓 𝒃𝒆𝒊𝒏𝒈 𝒂 𝒍𝒖𝒏𝒂𝒕𝒊𝒄.}}$
 
   </p>
  Lovemail's are still wip. Working on it, though.
