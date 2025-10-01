@@ -26,7 +26,7 @@
 
  $\color{#F089C9}{\textbf{i was stupid, ok? I didn't mean it.}}$
 
- $\color{#F089C9}{\textbf{Maybe if i was more aware, i wasn't putto blame.}}$ 
+ $\color{#F089C9}{\textbf{Maybe if i was more aware, i wasn't put to blame.}}$ 
  
  $\color{#F089C9}{\textbf{I'm just a person, like you. I have problems too, but I didn't know what you felt}}$
  
