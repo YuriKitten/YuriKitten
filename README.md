@@ -20,7 +20,7 @@
  
  $\color{#F089C9}{\textbf{I did NOT harass you. maybe I did but i had no clue.}}$
 
- $\color{#F089C9}{textbf{You could've told me if you didn't like me using that.}}$
+ $\color{#F089C9}{\textbf{You could've told me if you didn't like me using that.}}$
 
  $\color{#F089C9}{\textbf{i Admit, it was my FAULT for doing it first.}}$
 
